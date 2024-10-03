@@ -1,0 +1,10 @@
+- 👋 Hi, I’m @kamillyn
+- temho 15 anos
+- estou no 1 ano do ensino médio
+- gosto de escutar música
+- meus pronomes são: 
+- faço aniversário dia 05/06
+-
+-
+-
+-
